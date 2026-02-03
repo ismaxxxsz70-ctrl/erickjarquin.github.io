@@ -1,1 +1,0 @@
-# erickjarquin.github.io
